@@ -8,7 +8,7 @@ https://wwe.lanzous.com/i3EXXe67iwh
 
 https://laodi.lanzous.com/itURni4ec0d
 
-https://share.qlbalaa.com/kylina/
+
 需要科学上网下载
 https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
 
