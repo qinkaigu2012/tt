@@ -3,14 +3,16 @@
 # 下载地址：国内下载
 https://cutt.ly/Gd2Gmde
 
+https://bit.ly/31ISWxF
+
 网盘下载
-https://wwe.lanzous.com/i3EXXe67iwh
+https://wwe.lanzoui.com/i3EXXe67iwh
 
-https://laodi.lanzous.com/itURni4ec0d
+https://laodi.lanzoui.com/itURni4ec0d
 
 
 
-https://abc567.lanzous.com/iN7TZkmzh1a
+https://abc567.lanzoui.com/iN7TZkmzh1a
 
 
 需要科学上网下载
